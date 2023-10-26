@@ -8,3 +8,7 @@
 ### Você pode entrar em contato comigo  📫 
 
 sabrina.nassife@escola.pr.gov.br
+
+
+
+![](https://media.tenor.com/zoBrJEhHLsUAAAAC/frc-7285.gif)
